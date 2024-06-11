@@ -1,4 +1,6 @@
-## Hi there https://digitalmarketingtrends.in/wp-content/uploads/2018/05/Entrepreneur-Gif.gif
+##  Almas here
+
+
 
 <!--
 **almas-yaseen/almas-yaseen** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
